@@ -1,4 +1,4 @@
-### Hi there 👋
+### Reach me at jim23@choate.edu or imjnnanna@gmail.com
 
 <!--
 **imjnnanna/imjnnanna** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
